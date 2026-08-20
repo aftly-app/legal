@@ -1,0 +1,2 @@
+# legal
+Aftly privacy policy
